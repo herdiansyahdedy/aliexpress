@@ -1,8 +1,8 @@
 <!DOCTYPE html>
 <html>
 <head>
-<title>Best Shopping Day</title>
-<meta http-equiv="refresh" content="0;URL='https://s.click.aliexpress.com/e/_AUrtIP'" />
+<title>Peluang Bisnis Di Internert</title>
+<meta http-equiv="refresh" content="0;URL='https://ref.sharecash.co/dedy27'" />
 </head>
 <body>
 </body>
